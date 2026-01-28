@@ -1,16 +1,15 @@
-## Hi there 👋
+🍰    ;  kaveh fictionkin , he/him
 
-<!--
-**haiikaveh/haiikaveh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🍰    ;  6teen, adults dni
 
-Here are some ideas to get you started:
+🍰    ;  c+h is always okay and encouraged, i promise i dont bite!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🍰    ;  kavetham/haikaveh int pls
+
+🍰    ;  i have diagnosed severe social anxiety and suspected chronic fatigue, please be patient with me
+
+🍰    ;  do not copy my ponies
+
+🍰    ;  sign ata! ---> https://bachiisagi.atabook.org
+
+🍰    ;  be kind to yourself, okay?
