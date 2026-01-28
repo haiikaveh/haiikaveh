@@ -1,3 +1,6 @@
+![fa24c0c533c5edc05f1dd71be8892915](https://github.com/user-attachments/assets/5ac2ec84-a423-42b2-b66e-8c8bc69d4bac)
+
+
 🍰    ;  kaveh fictionkin , he/him
 
 🍰    ;  6teen, adults dni
